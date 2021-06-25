@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: rajaryan122001@gmail.com
 - 😄 Pronouns: Raj-Aryan
 - ⚡ Fun fact: too curious to engage!!
--->
