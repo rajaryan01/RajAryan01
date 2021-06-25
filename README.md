@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Trending Technology https://www.trendtutorials.com/
 - 📫 How to reach me: rajaryan122001@gmail.com
 - 😄 Pronouns: Raj-Aryan
-- ⚡ Fun fact: too curious to engage!!
+- ⚡ Fun fact: engage to learn!!
