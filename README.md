@@ -1,7 +1,7 @@
 ### Hi 👋 I am Raj Aryan
 
 
-Here are some ideas to get you started:
+Here are brief details about me.
 
 - 🔭 I’m currently working on Python,Django
 - 🌱 I’m currently learning DSA,Programming 
